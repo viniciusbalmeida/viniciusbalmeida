@@ -3,7 +3,7 @@
 - 🌱 I am currently learning data structure, cloud computing, communication between applications and others.
 - 💞️ I am looking to collaborate in knowledge and projects
 - 📫 How to reach me : 
-Instagram - @vinaikida____
+Instagram - @viniciusalmeida___
 e-mail: viniciusbalmeida2019@gmail.com
 Whatsapp: 55+ 6199576-0909
 
